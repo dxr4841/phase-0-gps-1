@@ -1,0 +1,1 @@
+Life is good when your internet works!
